@@ -14,15 +14,17 @@ Doel: kennismaken met het fonds, toetsen of het profiel past bij de regeling, en
 Geachte heer/mevrouw,
 
 Mijn naam is Vova, onafhankelijk muziekartiest en producer, werkend vanuit
-Uprising Studio in Amersfoort. Ik oriënteer me op financieringsmogelijkheden
-voor [korte omschrijving project — bijv. de productie en release van een EP,
+Uprising Studio in Amersfoort. Ik bouw mijn artiestenpraktijk momenteel
+opnieuw op en oriënteer me op financieringsmogelijkheden voor
+[korte omschrijving project — bijv. de productie en release van een EP,
 een live-tour, of professionele ontwikkeling].
 
 Ik kwam bij u uit bij de regeling **[naam regeling]** en heb daarover twee
 korte vragen:
 
-1. Past mijn profiel — [1-2 zinnen over track record, bijv. aantal releases,
-   streams, optredens] — binnen de criteria van deze regeling?
+1. Ik sta aan het begin van een nieuwe fase als maker (geen lopend releasing-
+   track record op dit moment). Past dat profiel binnen de criteria van deze
+   regeling, of is er een regeling voor startende/opkomende makers die beter past?
 2. Wat raadt u aan als eerste stap: direct een aanvraag indienen via het
    portaal, of eerst een projectplan ter toetsing voorleggen?
 
