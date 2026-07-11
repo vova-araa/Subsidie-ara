@@ -16,18 +16,17 @@ Vaste ondertekening:
 
 ## 1. Amarte Fonds — info@amarte.nl
 
-**Onderwerp:** Oriëntatievraag Ontwikkelbijdrage Muziek
+**Onderwerp:** Projectbijdrage Muziek — nieuwe EP van Vova (Amersfoort)
 
-Geachte heer/mevrouw,
+Beste team van Amarte,
 
-Mijn naam is Vova, onafhankelijk muziekartiest uit Amersfoort, werkend vanuit Uprising Studio. Ik werk momenteel aan mijn EP; de eerste release verschijnt deze maand. Voor het vervolg van dit traject (afronding, release en live presentatie van nieuw werk) oriënteer ik me op financiering.
+Deze maand breng ik mijn nieuwe single uit. Daarna wil ik door met waar ik eigenlijk naartoe werk: een nieuwe EP, die ik vanaf eind augustus wil opnemen en daarna live ga presenteren, te beginnen in Amersfoort.
 
-Ik kwam uit bij uw Ontwikkelbijdrage en Projectbijdrage Muziek en heb twee korte vragen:
+Voor dat EP-traject wil ik een aanvraag doen voor de Projectbijdrage Muziek. Het plan en de begroting lever ik binnenkort aan via jullie portaal.
 
-1. Ik start een nieuwe fase in mijn artiestenpraktijk; mijn releasetraject loopt net. Past dat profiel binnen uw criteria?
-2. Wat past in mijn situatie beter als eerste aanvraag: de ontwikkelbijdrage of de projectbijdrage?
+Als er iets is wat jullie vooraf al willen weten, of wat de aanvraag sterker maakt, hoor ik het graag.
 
-Ik hoor graag van u, dan dien ik daarna een aanvraag in via uw portaal.
+*Strategie: single nu, EP als nieuw project vanaf eind augustus — voldoet aan Amarte's 6-wekentermijn én aan Sena's eis dat opnames nog niet gestart zijn.*
 
 ---
 
