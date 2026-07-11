@@ -1,4 +1,4 @@
-# Outreach-mails per fonds
+# [GEARCHIVEERD] Oude oriëntatie-mails — vervangen door aanvragen/via-portaal.md en aanvragen/via-mail.md
 
 Afzender: vovara@uprisingstudio.nl (Vova, muziekartiest, Uprising Studio, Amersfoort).
 Profiel in de mails: onafhankelijk artiest, EP in productie, eerste release juli 2026.

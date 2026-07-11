@@ -1,6 +1,6 @@
 # Aanvragen/aanmeldingen die via e-mail lopen
 
-*Alleen deze fondsen/routes werken via e-mail. Mails zijn direct en actiegericht geschreven. Vaste ondertekening: Vova — Uprising Studio, Amersfoort — vovara@uprisingstudio.nl.*
+*Alleen deze fondsen/routes werken via e-mail. Mails zijn direct en actiegericht geschreven. Vaste ondertekening: Vova — muziekartiest, Amersfoort — vovara@uprisingstudio.nl.*
 
 ---
 
@@ -13,7 +13,7 @@ Beste team Cultuurlening,
 
 Ik wil graag een oriëntatiegesprek inplannen over de Cultuurlening.
 
-Ik ben Vova, muziekartiest uit Amersfoort (Uprising Studio). Deze maand komt mijn nieuwe single uit en eind augustus start ik met de opnames van mijn nieuwe EP. De lening wil ik inzetten voor de productie, release en livepresentatie van die EP, naast de fondsaanvragen die ik parallel voorbereid.
+Ik ben Vova, onafhankelijk muziekartiest uit Amersfoort. Deze maand komt mijn nieuwe single uit en eind augustus start ik met de opnames van mijn nieuwe EP. De lening wil ik inzetten voor de productie, release en livepresentatie van die EP, naast de fondsaanvragen die ik parallel voorbereid.
 
 Ik ben doordeweeks goed bereikbaar via dit mailadres. Laten jullie weten wanneer het gesprek kan plaatsvinden?
 
@@ -26,7 +26,7 @@ Ik ben doordeweeks goed bereikbaar via dit mailadres. Laten jullie weten wanneer
 
 Beste Buma Cultuur,
 
-Ik ben Vova, muziekartiest en muziekauteur uit Amersfoort. Deze maand komt mijn nieuwe single uit en eind augustus start ik met de opnames van mijn nieuwe EP. Mijn Buma/Stemra-aansluiting ben ik aan het regelen.
+Ik ben Vova, onafhankelijk muziekartiest en muziekauteur uit Amersfoort. Deze maand komt mijn nieuwe single uit en eind augustus start ik met de opnames van mijn nieuwe EP. Mijn Buma/Stemra-aansluiting ben ik aan het regelen.
 
 Ik wil me aanmelden voor de trajecten die dit najaar openstaan voor muziekauteurs — in elk geval Buma NL en de Buma Music Academy, en waar mogelijk ADE. Zetten jullie me op de lijst voor de open inschrijvingen en sturen jullie me de aanmeldlinks van wat nu al open staat?
 
@@ -39,7 +39,7 @@ Ik wil me aanmelden voor de trajecten die dit najaar openstaan voor muziekauteur
 
 Beste Creative Europe Desk,
 
-Ik ben Vova, muziekartiest uit Amersfoort. Ik ga dit najaar een aanvraag doen binnen de nieuwe call van Culture Moves Europe (individuele mobiliteit, muziek) en bereid me daar nu op voor — inclusief het vinden van een partner in een ander Creative Europe-land, bijvoorbeeld een residency of studio.
+Ik ben Vova, onafhankelijk muziekartiest uit Amersfoort. Ik ga dit najaar een aanvraag doen binnen de nieuwe call van Culture Moves Europe (individuele mobiliteit, muziek) en bereid me daar nu op voor — inclusief het vinden van een partner in een ander Creative Europe-land, bijvoorbeeld een residency of studio.
 
 Ik maak graag gebruik van jullie adviesmogelijkheid. Plannen jullie me in voor een (bel)gesprek?
 
