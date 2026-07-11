@@ -115,11 +115,11 @@ Alvast hartelijk dank voor uw reactie.
 
 ---
 
-## 7. Gemeente Amersfoort — A.Hoekstra@amersfoort.nl
+## 7. Gemeente Amersfoort — LH.Krediet@amersfoort.nl (Louise Krediet, contactpersoon Flitsimpuls)
 
 **Onderwerp:** Vragen over Flitsimpuls makers en talent (ronde 27 aug – 7 sep)
 
-Geachte heer/mevrouw Hoekstra,
+Geachte mevrouw Krediet,
 
 Mijn naam is Vova, muziekartiest en producer, werkend vanuit Uprising Studio in Amersfoort. Ik wil in de ronde van 27 augustus – 7 september graag een aanvraag doen voor de Flitsimpuls makers en talent 2026, voor het maken en publiek tonen van nieuw eigen werk in Amersfoort.
 
@@ -163,7 +163,7 @@ Alvast hartelijk dank.
 
 ---
 
-## 10. Cultuur+Ondernemen — info@cultuur-ondernemen.nl
+## 10. Cultuur+Ondernemen — cultuurlening@cultuur-ondernemen.nl (team Cultuurlening)
 
 **Onderwerp:** Aanvraag oriëntatiegesprek Cultuurlening
 

@@ -12,10 +12,10 @@ worden voordat de mails als concept klaargezet of verzonden kunnen worden.
 | 4 | Fonds voor Cultuurparticipatie | info@cultuurparticipatie.nl | Opgesteld | |
 | 5 | het Cultuurfonds | info@cultuurfonds.nl | Opgesteld | |
 | 6 | NORMA Fonds | normafonds@stichtingnorma.nl | Opgesteld | **Deadline ronde: 31 juli** |
-| 7 | Gemeente Amersfoort (Flitsimpuls) | A.Hoekstra@amersfoort.nl | Opgesteld | Adres vóór verzending verifiëren op amersfoort.nl |
+| 7 | Gemeente Amersfoort (Flitsimpuls) | LH.Krediet@amersfoort.nl | Opgesteld | Contactpersoon Louise Krediet (geverifieerd) |
 | 8 | Werktuig PPO | mijnaanvraag@werktuigppo.nl | Opgesteld | |
 | 9 | VSBfonds regio Utrecht | infoflevolandutrechtoverijssel@vsbfonds.nl | Opgesteld | |
-| 10 | Cultuur+Ondernemen | info@cultuur-ondernemen.nl | Opgesteld | Adres vóór verzending verifiëren op contactpagina |
+| 10 | Cultuur+Ondernemen | cultuurlening@cultuur-ondernemen.nl | Opgesteld | Direct adres team Cultuurlening (geverifieerd) |
 | 11 | Voordekunst | info@voordekunst.nl | Opgesteld | |
 | 12 | Buma Cultuur | info@bumacultuur.nl | Opgesteld | |
 | 13 | Creative Europe Desk NL | Culture@creativeeuropedesk.nl | Opgesteld | |
